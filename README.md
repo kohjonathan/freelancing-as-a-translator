@@ -16,11 +16,11 @@ This is the book cover of a little handbook that I've created. The handbook cont
 <br /><br />Obeying GOD back then is a decision I've never and will never regret making. It was there that i picked up the Spanish language, made life-long friends, and grew as an individual while learning to pour out my life into others.
 
 **MY FIRST MISSION ENDED, ANOTHER ON THE HORIZON**
-<br /><br />Four plus (close to five) years went by, I returned to Singapore, got married and started using the Spanish language to bring in the bread for my new home. I never went back to the banks since I lost touch with my previous bosses.
+<br />Four plus (close to five) years went by, I returned to Singapore, got married and started using the Spanish language to bring in the bread for my new home. I never went back to the banks since I lost touch with my previous bosses.
 <br /><br />Shortly after that, GOD decided that it was time for me to go on another voluntary mission again, this time with my wife of three years. This time it was Guatemala, also in Latin America, another Spanish-speaking country.
 
 **BACK IN SINGAPORE**
-<br /><br />The one year in Guatemala went by very quickly. Upon my return, GOD opened a door for me to learn marketing and business development with two companies. My eyes were opened to the online world as a result. Online marketing was still new to many. I'm talking about the mid 2000s. 
+<br />The one year in Guatemala went by very quickly. Upon my return, GOD opened a door for me to learn marketing and business development with two companies. My eyes were opened to the online world as a result. Online marketing was still new to many. I'm talking about the mid 2000s. 
 <br /><br />
 
 **BE MY OWN BOSS**
