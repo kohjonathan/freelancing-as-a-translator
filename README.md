@@ -45,6 +45,6 @@ Long story short, the business started to pick up just in time for the arrival o
 
 **CLEVER MIND HACKS FOR CLIENT ACQUISITION**
 <br />Someone aptly said this: *If you can't be found, your phone won't ring.*
-<br />That's easy, you say, tere are lots of ways to be found of course: place an advertisement in the newspaper, make sure you're on the good old Yellow Pages (you'd be surprised that there are still people looking for services in the phone books), give out namecards, pay GOOGLE to get your company on first page.
+<br /><br />That's easy, you say, there are lots of ways to be found of course: place an advertisement in the newspaper, make sure you're on the good old Yellow Pages (you'd be surprised that there are still people looking for services in the phone books), give out namecards, pay GOOGLE to get your company on first page.
 <br /><br />Sure. Sure. But does the freelancer have the budget to do this month after month after month?
 <br /><br />If yes, problem solved. What if you don't?
