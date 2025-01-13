@@ -21,13 +21,12 @@ This is the book cover of a little handbook that I've created. The handbook cont
 
 **BACK IN SINGAPORE**
 <br />The one year in Guatemala went by very quickly. Upon my return, GOD opened a door for me to learn marketing and business development with two companies. My eyes were opened to the online world as a result. Online marketing was still new to many. I'm talking about the mid 2000s. 
-<br /><br />
 
 **BE MY OWN BOSS**
 <br />A year or so after my return, GOD dropped me the idea of starting a business. Having been exposed to online marketing (it was still very simple and straightforward then), I made the decision to do it in my free time. Besides accepting translation projects from translation houses, I registered a company (without any capital or upfront risks) and tried getting clients with a website.
 
 **A FULFILLING JOURNEY**
-Long story short, the business started to pick up just in time for the arrival of my firstborn. I enjoyed working and learning at the same time. Apart from freelancing skills, I was learning how to be a father (and a good husband).
+<br />Long story short, the business started to pick up just in time for the arrival of my firstborn. I enjoyed working and learning at the same time. Apart from freelancing skills, I was learning how to be a father (and a good husband).
 
 **FREELANCING CHALLENGES**
 <br />Up to this point, freelancing probably sounds like a bed of roses to you. If it were so, I wouldn't be writing this "diary" here.
