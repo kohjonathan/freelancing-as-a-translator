@@ -38,7 +38,7 @@ Long story short, the business started to pick up just in time for the arrival o
 
 **OVERCOMING FREELANCING CHALLENGES**
 <br />After almost twenty years as a freelance translator, through some hardknocks, I've learned some precious lessons and come up with uniue ways of dealing with the challenges.
-<br />After successfully setting up a system to get clients, I had to deal with non-paying or slow-paying clients, unreasonable deadlines and demands, etc. I had to deal with software glitches, system breakdowns, lost information. I had to come up with a solution for keeping the accounts, etc. Every step of the way, something was learned and I became a bit wiser. The journey has been rewarding and i've not looked back since.
+<br /><br />After successfully setting up a system to get clients, I had to deal with non-paying or slow-paying clients, unreasonable deadlines and demands, etc. I had to deal with software glitches, system breakdowns, lost data, legal threats, etc. I also had to come up with a solution for keeping the accounts, file taxes, etc. Every step of the way, something was learned and I became a bit wiser. The journey has been rewarding and i've not looked back since.
 
 **GETTING NEW CLIENTS**
 <br />I mentioned that of of the big challenges is client acquisition. Almost every new freelancer I know face this. But, I finally found a way to never run out of clients. In fact, there's a way to turn on the flow of clients on demand. I spent a tremendous amount of time working on this because this was one challenge that determined if i could make enough bread for my family.
